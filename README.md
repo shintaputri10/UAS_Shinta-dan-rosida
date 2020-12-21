@@ -1,0 +1,1 @@
+# UAS_Shinta-dan-rosida
